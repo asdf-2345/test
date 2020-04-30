@@ -11,4 +11,7 @@
 #### 자살 ㄱ
 
 > ㅇㅋ
+>
+> ![캡처](https://user-images.githubusercontent.com/52937308/80673481-54541b80-8aea-11ea-83f2-ebcf1312b8b5.PNG)
+
 
